@@ -7,8 +7,10 @@ A todo list of the latest and greatest spots in Seattle...even when it's raining
 * [Pie Bar](https://www.yelp.com/biz/pie-bar-seattle-2) (Sweet and Savory pies. Chicken pot pie has pretty flaky crust and hearty fillings but is hard to justify the $17 price point)
 * [Qin Xi'an Noodles](https://www.yelp.com/biz/qin-xian-noodles-seattle-3) (Chewy handpulled noodles with lamb or beef. Pretty popular among the Asian crowd. $9-$12)
 * [Witness](https://www.yelp.com/biz/witness-seattle) (Southern comfort food. Chicken and waffles are excellent with well-seasoned, juicy dark meat chicken. BLT had sweet, vibrant heirloom tomatoes and bread toasted to perfection. It is a bit pricey as prices range from $13-$18 for brunch.)
+* [Vinason Pho & Grill](https://www.yelp.com/biz/vinason-pho-and-grill-seattle-2) (Vietnamese pho and banh mi. The chicken banh is simple but very tasty with juicy, slightly sweet chicken and it's actually pretty spicy if you request it. Pho is decent but comes in a small bowl and seems to be lacking in quantity. $10-$13)
 ### Outdoors (engineers go outside too!)
 #### Hiking
 * [Mount Si](https://www.wta.org/go-hiking/hikes/mount-si) (Intermediate; 3000 feet in 4 miles; View is just trees until you get to the top, which is very rocky. Would **NOT** recommend for hiking noobs or first-timers.)
    * Discover pass needed
    * Used as training for Rainer.
+* [Rattlesnake Ledge](https://www.wta.org/go-hiking/hikes/rattle-snake-ledge) (Beginner; 1160 feet in 2 miles; The most beginner, basic bitch hike in Seattle. Excellent for first-timers or as a segway into hiking in the PNW. View is consistenly amazing at the ledge, you also have a clear view of a gorgeous lake.)
