@@ -17,6 +17,9 @@ A todo list of the latest and greatest spots in Seattle...even when it's raining
 * [Market Grill](https://www.yelp.com/biz/market-grill-seattle) (Small seafood joint smack dab in the middle of pike place market. I've only had their prawn sandwich but it's delicious. The seafood is perfectly grilled and the aioli they put on the sandwiches is to die for. They are famous for their blackened salmon, on a platter or sandwich. $12-$20)
 * [Uli's Famous Sausage](https://www.yelp.com/biz/ulis-famous-sausage-seattle) (The best sausage in Seattle, in the middle of pike place market. The meat is juicy, savory, and there's so many varieties. The red cabbage side dish is also delicious. $12-$20)
 * [Japonessa](https://www.yelp.com/biz/japonessa-sushi-cocina-seattle) (Go here for their all-day happy hour in the restaurant until 6:30, and at the bar until 8. My favorite is the salmon skin sushi. Expect a long line without a reservation during the weekends.)
+* [Little Chengdu](https://www.yelp.com/biz/little-chengdu-seattle-2)
+* [Aglio e Olio](https://www.yelp.com/biz/aglio-e-olio-seattle) (Possibly the best Italian Food in Seattle. You must make a reservation because the place is tiny. The Lamb Cannoli and the Harvest Gnocci are to die for. $13-$20)
+* [Sizzling Pot King]
 ### Outdoors (engineers go outside too!)
 #### Hiking
 * [Mount Si](https://www.wta.org/go-hiking/hikes/mount-si) (Intermediate; 3000 feet in 4 miles; View is just trees until you get to the top, which is very rocky. Would **NOT** recommend for hiking noobs or first-timers.)
